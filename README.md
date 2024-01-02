@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently learning about  programming language.
+Beginner as a programmer.
 
 
 ## 🌐 Socials:
